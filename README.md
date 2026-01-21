@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning power user btw
 - 💞️ I’m looking to collaborate on power user btw
 - 📫 How to reach me power user btw
-- 😄 Pronouns: ... Sir John A Mcdonald
 - ⚡ Fun fact: power user btw
 
 <!---
